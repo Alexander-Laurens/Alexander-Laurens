@@ -23,6 +23,5 @@ As of right now, I do not come online often just because Ponytown is not that pr
 
 <img width="2048" height="226" alt="image" src="https://github.com/user-attachments/assets/4aff6e37-c31e-4265-90f2-2d7700e8440d" />
 
-<img width="500" height="691" alt="image" src="https://github.com/user-attachments/assets/f41154a9-5676-4c89-938a-4a31d3310501" /><img width="500" height="691" alt="image" src="https://github.com/user-attachments/assets/039eaacc-19ae-486a-8e1d-aa20d7828af9" />
-art cred: @Jhoca on Tumblr 
+<img width="500" height="691" alt="image" src="https://github.com/user-attachments/assets/f41154a9-5676-4c89-938a-4a31d3310501" />
 <img width="2048" height="330" alt="image" src="https://github.com/user-attachments/assets/db16dc51-c2bb-430e-ad10-2b5b6dc6f74a" />
