@@ -42,6 +42,8 @@ you may interact **unless stated otherwise.**
 
 C+H are okay but **do not** be offended if I move away from you, it's likely nothing personal.
 
+If I don't respond, I'm probably offtab, so whisper me.
+
 Usually at docks, old (2022) FNAF area, café, or Epic: the Musical area.
 
 <img width="2048" height="330" alt="image" src="https://github.com/user-attachments/assets/5ea026d4-1590-4dbe-9ccf-3643135ce0d9" />
