@@ -4,7 +4,7 @@
 Hello! I'm Alexander ( I also go by Char )
 
 I'm aroace and transmasc genderfluid ( he/they ) 
- ⋮ ⌗ ┆𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃
+
 I'm an avid reader, an artist, and a writer on occasion. 
 
 
