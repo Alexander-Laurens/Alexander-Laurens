@@ -5,10 +5,6 @@
 Hello! I'm Alexander ( I also go by Char )
 
 I'm aroace and transmasc genderfluid ( he/they ) 
- 
-I am a minor, so I do ask that you don't be **too** sexual around me, it makes me uncomfortable.
-
-𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃
 
 I avidly read, draw, and write! I also participate in a lot of fandom spaces, the most prominent being AMREV and CRK. 
 
@@ -16,16 +12,23 @@ I avidly read, draw, and write! I also participate in a lot of fandom spaces, th
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/cd3bbfd2-6bcd-493c-82df-62acb207006a" />
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/50f7d338-08e3-44a4-ad52-497413cf3fea" />
-𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃
 
-DNI:
+<img width="2048" height="210" alt="image" src="https://github.com/user-attachments/assets/4aff6e37-c31e-4265-90f2-2d7700e8440d" />
+
+
+**DNI:**
 
 basic criteria, darkshippers, 20+, etc. 
 
 other than that, you're free to talk to me!
 
-𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃
+**Boundaries:**
 
+I am a minor, so I do ask that you don't be **too** sexual around me, it makes me uncomfortable.
+
+Furthermore, don't be a dick for no reason, especially if I don't know you like that. It's just odd.
+
+<img width="2048" height="210" alt="image" src="https://github.com/user-attachments/assets/4aff6e37-c31e-4265-90f2-2d7700e8440d" />
 
 
 # Ponytown ┆⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔┆
@@ -40,7 +43,6 @@ you may interact **unless stated otherwise.**
 C+H are okay but **do not** be offended if I move away from you, it's likely nothing personal.
 
 
+<img width="2048" height="330" alt="image" src="https://github.com/user-attachments/assets/5ea026d4-1590-4dbe-9ccf-3643135ce0d9" />
 
 
-
-<img width="2048" height="226" alt="image" src="https://github.com/user-attachments/assets/4aff6e37-c31e-4265-90f2-2d7700e8440d" />
