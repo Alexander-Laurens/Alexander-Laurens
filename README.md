@@ -1,3 +1,4 @@
+
 <img width="2048" height="330" alt="image" src="https://github.com/user-attachments/assets/5f574be9-c948-427e-abc2-6f796ca16b94" />
 
 # Intro ┆⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔┆
@@ -27,12 +28,12 @@ other than that, you're free to talk to me!
 
 
 
-
 # Ponytown ┆⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔┆
 
 I've been on Ponytown for 3 years going on 4 (not that long in retrospect lmao)
 
-As of right now, I do not come online often just because Ponytown is not that prominent in my everyday anymore, but I still do love making friends.
+As of right now, I do not come online often just because Ponytown is not that prominent in my everyday anymore, but I still do love making friends on there.
+
 
 you may interact **unless stated otherwise.**
 
