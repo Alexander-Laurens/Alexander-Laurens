@@ -6,6 +6,8 @@ pls how do you center the profile views thing im struggling
   </a> 
 </p>
 
+:-![](https://komarev.com/ghpvc/?username=Alexander-Laurens&style=for-the-badge&color=C40A0A&label=PROFILE+VIEWS&abbreviated=true)-:
+
 <img width="2048" height="330" alt="image" src="https://github.com/user-attachments/assets/5f574be9-c948-427e-abc2-6f796ca16b94" />
 
 # Intro ┆⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔┆
@@ -19,7 +21,6 @@ I avidly read, draw, and write! I also participate in a lot of fandom spaces, th
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/cd3bbfd2-6bcd-493c-82df-62acb207006a" />
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/50f7d338-08e3-44a4-ad52-497413cf3fea" />
-<![](https://komarev.com/ghpvc/?username=Alexander-Laurens&style=for-the-badge&color=C40A0A&label=PROFILE+VIEWS&abbreviated=true) />
 
 <img width="2048" height="210" alt="image" src="https://github.com/user-attachments/assets/4aff6e37-c31e-4265-90f2-2d7700e8440d" />
 
