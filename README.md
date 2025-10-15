@@ -1,4 +1,3 @@
-pls how do you center the profile views thing im struggling
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
