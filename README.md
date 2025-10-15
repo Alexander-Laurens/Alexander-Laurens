@@ -1,5 +1,4 @@
-
-<p align="![](https://komarev.com/ghpvc/?username=Alexander-Laurens&style=for-the-badge&color=C40A0A&label=PROFILE+VIEWS&abbreviated=true)">This text will be centered.</p>
+pls how do you center the profile views thing im struggling
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
