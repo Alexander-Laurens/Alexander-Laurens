@@ -6,7 +6,7 @@ pls how do you center the profile views thing im struggling
   </a> 
 </p>
 
-:-![](https://komarev.com/ghpvc/?username=Alexander-Laurens&style=for-the-badge&color=C40A0A&label=PROFILE+VIEWS&abbreviated=true)-:
+┆⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔┆┆⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔┆![](https://komarev.com/ghpvc/?username=Alexander-Laurens&style=for-the-badge&color=C40A0A&label=PROFILE+VIEWS&abbreviated=true)┆⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔┆┆⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔┆
 
 <img width="2048" height="330" alt="image" src="https://github.com/user-attachments/assets/5f574be9-c948-427e-abc2-6f796ca16b94" />
 
