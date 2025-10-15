@@ -2,6 +2,11 @@
 
 ┆⏔⏔ ꒰  ꒱ ⏔⏔┆᧔ෆ᧓┆⏔⏔⏔ ꒰  ꒱ ⏔⏔⏔┆┆⏔⏔ ꒰  ꒱ ⏔⏔┆         ![](https://komarev.com/ghpvc/?username=Alexander-Laurens&style=for-the-badge&color=C40A0A&label=PROFILE+VIEWS&abbreviated=true)┆⏔⏔ ꒰  ꒱ ⏔⏔┆┆⏔⏔⏔ ꒰  ꒱ ⏔⏔⏔┆᧔ෆ᧓┆⏔⏔ ꒰  ꒱ ⏔⏔⏔┆
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ho7mmuuyoj5ieyspgy2cuvld4y&cover_image=true&theme=default&show_offline=true&background_color=070303&interchange=true&profanity=false&bar_color=cd1313&bar_color_cover=false">
+  </a>
+</p>
 
 <img width="2048" height="330" alt="image" src="https://github.com/user-attachments/assets/5f574be9-c948-427e-abc2-6f796ca16b94" />
 
