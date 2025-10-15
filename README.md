@@ -1,6 +1,5 @@
 
-
-![](https://komarev.com/ghpvc/?username=Alexander-Laurens&style=for-the-badge&color=C40A0A&label=PROFILE+VIEWS&abbreviated=true)
+<p align="![](https://komarev.com/ghpvc/?username=Alexander-Laurens&style=for-the-badge&color=C40A0A&label=PROFILE+VIEWS&abbreviated=true)">This text will be centered.</p>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
