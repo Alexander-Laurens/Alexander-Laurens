@@ -1,4 +1,10 @@
 
+![](https://komarev.com/ghpvc/?username=Alexander-Laurens)
+![](https://komarev.com/ghpvc/?username=Alexander-Laurense&color=C40A0A)
+![](https://komarev.com/ghpvc/?username=Alexander-Laurens&style=for-the-badge)
+![](https://komarev.com/ghpvc/?username=Alexander-Laurens&label=PROFILE+VIEWS)
+![](https://komarev.com/ghpvc/?username=Alexander-Laurens&abbreviated=true)
+
 <img width="2048" height="330" alt="image" src="https://github.com/user-attachments/assets/5f574be9-c948-427e-abc2-6f796ca16b94" />
 
 # Intro ┆⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔┆
