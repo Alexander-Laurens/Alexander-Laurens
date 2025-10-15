@@ -1,7 +1,7 @@
 
 
 <p align="center">!
-<a href:![](https://komarev.com/ghpvc/?username=Alexander-Laurens&style=for-the-badge&color=C40A0A&label=PROFILE+VIEWS&abbreviated=true)>
+<a href="![](https://komarev.com/ghpvc/?username=Alexander-Laurens&style=for-the-badge&color=C40A0A&label=PROFILE+VIEWS&abbreviated=true)">
 
 
 <p align="center">
