@@ -10,9 +10,9 @@ Hello! I'm Alexander ( I also go by Char )
 
 I'm aroace and transmasc genderfluid ( he/they ) 
 
-I avidly read, draw, and write! I also participate in a lot of fandom spaces, the most prominent being AMREV and CRK. 
+I avidly read, draw, and write! I also participate in a lot of fandom spaces, the most prominent being AMREV and Corru.Observer. ( Maybe CRK if I'm generous... ) 
 
-(currently fixated on AMREV/Historical Lams)
+( currently fixated on AMREV/Historical Lams )
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/cd3bbfd2-6bcd-493c-82df-62acb207006a" />
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/50f7d338-08e3-44a4-ad52-497413cf3fea" />
