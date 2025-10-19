@@ -30,7 +30,7 @@ basic criteria, darkshippers, proshippers, 20+, etc.
 
 other than that, you're free to talk to me!
 
-( I kinda have a problem with signing people's atas without reading their info... so if I've signed your ata and you meet any of those requirements, that is my bad... just ignore me and do not interact. )
+( I have a problem with signing people's atas before reading their info... so if I've signed your ata and you meet any of those requirements, that is my bad... just ignore me and do not interact. )
 
 **Boundaries:**
 
