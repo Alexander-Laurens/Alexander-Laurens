@@ -26,7 +26,7 @@ I avidly read, draw, and write! I also participate in a lot of fandom spaces, th
 
 **DNI:**
 
-basic criteria, darkshippers, proshippers, 20+, etc. 
+basic criteria, darkshippers, 20+, etc. 
 
 other than that, you're free to talk to me!
 
